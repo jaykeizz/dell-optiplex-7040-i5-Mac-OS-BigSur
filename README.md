@@ -5,5 +5,5 @@ https://www.olarila.com/topic/6278-olarila-vanilla-images/
 
 Follow Installion From https://www.youtube.com/channel/UC_eGfKu7sPvcPeHyYVVgo3w
 
-Installion Tuturial Link Here! https://www.youtube.com/watch?v=sbATCCmUMAw&t=1005s
+Installion Tutorial Link Here! https://www.youtube.com/watch?v=sbATCCmUMAw&t=1005s
 
